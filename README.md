@@ -2,7 +2,7 @@ Yeah
 
 You are my fire
 
-The one desire
+We like watching birds
 
 Believe when I say
 
