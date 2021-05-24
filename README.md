@@ -30,7 +30,8 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your fire? 🦛🦈🐊🐋🐟🐠🐬🐳
+Am I your amazing 🍝 🍝 🍝 🍝 🍝 🍝 🍝-monster? Seriously, am I on 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥? Or watching birds? 🚒🚒🦛🦈🐊🐋🐟🐠🐬🐳
+
 
 Your one desire
 
