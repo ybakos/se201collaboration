@@ -18,7 +18,7 @@ That I want it that way
 
 Tell me why
 
-Ain't nothin' but a heartache
+Are not no thing except for a pain in the coronary system
 
 Tell me tacos!
 
