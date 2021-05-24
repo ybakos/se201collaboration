@@ -82,7 +82,7 @@ Tell me why
 
 Ain't nothin' but a heartache
 
-Tell me why
+Tell me why tell me why tell me why tell me why
 
 Ain't nothing but a mistake
 
