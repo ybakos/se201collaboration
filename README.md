@@ -34,7 +34,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your fyre spaghetti-monster? Well... am I? Watching birds? 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🍝 🍝 🍝 🍝 🍝 🍝 🍝 
+Am I your amazing 🍝 🍝 🍝 🍝 🍝 🍝 🍝-monster? Seriously, am I on 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥? Or watching birds? 🚒🚒🦛🦈🐊🐋🐟🐠🐬🐳
 
 Your one desire
 
