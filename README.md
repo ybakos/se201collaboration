@@ -98,7 +98,7 @@ Nothing more than mild angina pectoris
 
 Ain't nothin' but a mistake
 
-Tell me why oh why oh why oh why oh whyyyyyyyyy
+Tell me burritos!
 
 I never want to hear you say (don't want to hear you say)
 
