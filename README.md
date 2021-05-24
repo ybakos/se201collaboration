@@ -68,7 +68,7 @@ The one desire
 
 You are (you are, you are, you are)
 
-Don't wanna hear you say
+Don't wanna hear you say, "Donkeyyyyyyy!"
 
 Ain't nothin' but a heartache
 
