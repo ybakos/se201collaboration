@@ -92,7 +92,7 @@ I never want to hear you say (never wanna hear you say)
 
 I want it that way
 
-Tell me why
+TELL ME WHYYYYYYYYYYYY
 
 Ain't nothin' but a heartache
 
