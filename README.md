@@ -64,7 +64,7 @@ That deep down inside of me
 
 You are my fire <3
 
-The one desire
+Cash rules everything around me, CREAM!
 
 You are! (you are?!, you are??, you are!!)?????!! 🤨
 
@@ -82,7 +82,7 @@ Tell me why
 
 Ain't nothin' but a toothache 
 
-Tell me why
+Tell me why tell me why tell me why tell me why
 
 Ain't nothing but a doughnut
 
