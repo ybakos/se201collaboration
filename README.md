@@ -84,7 +84,7 @@ Ain't nothin' but a toothache
 
 Tell me why
 
-Ain't nothing but a mistake
+Ain't nothing but a doughnut
 
 Tell me why
 
@@ -94,7 +94,7 @@ I want it that way
 
 TELL ME WHYYYYYYYYYYYY
 
-Ain't nothin' but a heartache
+Nothing more than mild angina pectoris
 
 Ain't nothin' but a mistake
 
