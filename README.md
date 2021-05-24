@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your one fyre spaghetti-monster? Am I on fire? Seriously, am I on fire? We likе watching birds 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🍝 🍝 🍝 🍝 🍝 🍝 🍝 
+Am I your one fyre 🍝 🍝 🍝 🍝 🍝 🍝 🍝 spaghetti-monster? Am I on fire? Seriously, am I on fire? We likе watching birds 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🍝 🍝 🍝 🍝 🍝 🍝 🍝 🚒🚒
 
 Your one desire
 
