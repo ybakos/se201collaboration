@@ -62,7 +62,7 @@ I want you to know
 
 That deep down inside of me
 
-You are my fire
+You are my fire <3
 
 The one desire
 
