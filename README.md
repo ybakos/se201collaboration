@@ -48,7 +48,7 @@ Ain't nothin' but a mistake
 
 Tell me why
 
-I never wanna hear you say
+<marquee width="60%" direction="left" height="30px">Tell me why!</marquee>
 
 I want it that way
 
