@@ -20,7 +20,7 @@ Tell me why
 
 Ain't nothin' but a heartache
 
-Tell me why
+Tell me tacos!
 
 Ain't nothin' but a mistake
 
