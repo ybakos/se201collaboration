@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your fire?
+We likе watching birds
 
 Your one desire
 
