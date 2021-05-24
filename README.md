@@ -18,7 +18,7 @@ That I want it that way
 
 Tell me why
 
-Ain't nothin' but a heartache
+Are not no thing except for a pain in the coronary system
 
 Tell me tacos!
 
@@ -62,7 +62,7 @@ I want you to know
 
 That deep down inside of me
 
-You are my fire
+You are my fire <3
 
 The one desire
 
