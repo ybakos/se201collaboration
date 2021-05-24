@@ -80,7 +80,7 @@ I want it that way
 
 Tell me why
 
-Ain't nothin' but a heartache
+Ain't nothin' but a toothache 
 
 Tell me why
 
