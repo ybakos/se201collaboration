@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your fire? we are on fire? where is fire? who has water? 
+Tell me why tell me why tell me why.
 
 Your one desire
 
