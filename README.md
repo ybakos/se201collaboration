@@ -62,7 +62,7 @@ I want you to know
 
 That deep down inside of me
 
-You are my fire
+You are my fire <3
 
 The one desire
 
@@ -82,7 +82,7 @@ Tell me why
 
 Ain't nothin' but a toothache 
 
-Tell me why
+Tell me why tell me why tell me why tell me why
 
 Ain't nothing but a doughnut
 
