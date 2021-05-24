@@ -58,7 +58,7 @@ From the way that it used to be, yeah
 
 No matter the distance
 
-I want you to know
+I want you to know it's your birthday
 
 That deep down inside of me
 
