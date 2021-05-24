@@ -70,7 +70,7 @@ You are! (you are?!, you are??, you are!!)?????!! 🤨
 
 Don't wanna hear you say, "Donkeyyyyyyy!"
 
-Ain't nothin' but a heartache
+Ain't nothin' but a headache
 
 Ain't nothin' but a mistake (don't wanna hear you say)
 
