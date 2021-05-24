@@ -34,9 +34,13 @@ I never wanna hear you say
 
 I want it that way
 
+<<<<<<< HEAD
 Am I your fire? tell me why? why? why? 
 
 Am I on fire? Seriously, am I on fire?
+=======
+Am I your fyre spaghetti-monster? Well... am I? Watching birds? 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🍝 🍝 🍝 🍝 🍝 🍝 🍝 
+>>>>>>> 1d50a869de364d4f23ebdded57c34b128534ce58
 
 
 Your one desire
