@@ -1,7 +1,8 @@
 
-
-
 Yeah
+
+Yeahhh Yeahhh Cowabungaaaaahhh (Yeah!) (Yeah!)
+
 
 You are my fire
 
@@ -34,6 +35,9 @@ I never wanna hear you say
 I want it that way
 
 Am I your fire? tell me why? why? why? 
+
+Am I on fire? Seriously, am I on fire?
+
 
 Your one desire
 
@@ -73,6 +77,9 @@ You are (you are, you are, you are)
 
 Don't wanna hear you say
 
+I DEFINITELY wanna hear you say, 🦙🦙🦙✨✨ALPACAS!✨✨🦙🦙🦙"
+
+
 Ain't nothin' but a heartache
 
 Ain't nothin' but a mistake (don't wanna hear you say)
@@ -83,7 +90,11 @@ I want it that way
 
 Tell me why
 
+
 Ain't nothin' but a heartache
+
+Ain't nothin' but a toothache
+
 
 Tell me why
 
