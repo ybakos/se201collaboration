@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your fire? Well... am I?
+Am I your fyre? Well... am I? Watching birds?
 
 Your one desire
 
