@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your amazing songbird of life?
+Am I your amazing spaghetti-monster?
 
 Your one desire
 
@@ -68,7 +68,7 @@ Cash rules everything around me, CREAM!
 
 You are! (you are?!, you are??, you are!!)?????!! 🤨
 
-I DEFINITELY wanna hear you say, ✨✨ALPACAS!✨✨"
+I DEFINITELY wanna hear you say, 🦙🦙🦙✨✨ALPACAS!✨✨🦙🦙🦙"
 
 Ain't nothin' but a headache
 
