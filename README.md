@@ -1,4 +1,4 @@
-Yeah
+Yeahhh Yeahhh Cowabungaaaaahhh (Yeah!) (Yeah!) 
 
 You are my fire
 
@@ -36,7 +36,7 @@ Your one desire
 
 Yes, I know it's too late
 
-But I want it that way
+Never gonna give you up!
 
 Tell me why
 
@@ -48,7 +48,7 @@ Ain't nothin' but a mistake
 
 Tell me why
 
-I never wanna hear you say
+<marquee width="60%" direction="left" height="30px">Tell me why!</marquee>
 
 I want it that way
 
@@ -94,7 +94,7 @@ I want it that way
 
 TELL ME WHYYYYYYYYYYYY
 
-Ain't nothin' but a heartache
+Nothing more than mild angina pectoris
 
 Ain't nothin' but a mistake
 
