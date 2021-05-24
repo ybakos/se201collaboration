@@ -8,7 +8,7 @@ Believe when I say
 
 I want it that way
 
-But we are two worlds apart
+But we are gonna party like
 
 Can't reach to your heart
 
@@ -34,7 +34,7 @@ Tell me why tell me why tell me why.
 
 Your one desire
 
-Yes, I know it's too late
+Yes, I know it's your birthday
 
 Never gonna give you up!
 
@@ -58,19 +58,19 @@ From the way that it used to be, yeah
 
 No matter the distance
 
-I want you to know
+I want you to know it's your birthday
 
 That deep down inside of me
 
 You are my fire <3
 
-The one desire
+Cash rules everything around me, CREAM!
 
 You are! (you are?!, you are??, you are!!)?????!! 🤨
 
 Don't wanna hear you say, "Donkeyyyyyyy!"
 
-Ain't nothin' but a heartache
+Ain't nothin' but a headache
 
 Ain't nothin' but a mistake (don't wanna hear you say)
 
