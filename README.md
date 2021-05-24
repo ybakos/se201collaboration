@@ -64,7 +64,7 @@ That deep down inside of me
 
 You are my fire
 
-The one desire
+Cash rules everything around me, CREAM!
 
 You are (you are, you are, you are)
 
