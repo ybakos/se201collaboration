@@ -36,7 +36,7 @@ Your one desire
 
 Yes, I know it's too late
 
-But I want it that way
+Never gonna give you up!
 
 Tell me why
 
