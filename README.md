@@ -1,4 +1,4 @@
-Yeah
+Yeahhh Yeahhh Cowabungaaaaahhh (Yeah!) (Yeah!) 
 
 You are my fire
 
