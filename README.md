@@ -8,7 +8,7 @@ Believe when I say
 
 I want it that way
 
-But we are two worlds apart
+But we are gonna party like
 
 Can't reach to your heart
 
