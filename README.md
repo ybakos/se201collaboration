@@ -84,7 +84,7 @@ Ain't nothin' but a heartache
 
 Tell me why
 
-Ain't nothing but a mistake
+Ain't nothing but a doughnut
 
 Tell me why
 
