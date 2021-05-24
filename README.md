@@ -31,10 +31,14 @@ I never wanna hear you say
 I want it that way
 
 <<<<<<< HEAD
+<<<<<<< HEAD
 We likе watching birds
 =======
 Am I your fyre?
 >>>>>>> 09a7adea1a4e0ededafd3da8c3e119fde15a3099
+=======
+Am I on fire? Seriously, am I on fire?
+>>>>>>> da50a485eaee043384fd11a5e74452ecd2dbaaee
 
 Your one desire
 
