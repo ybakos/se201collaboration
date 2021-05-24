@@ -98,7 +98,7 @@ Ain't nothin' but a heartache
 
 Ain't nothin' but a mistake
 
-Tell me why
+Tell me why oh why oh why oh why oh whyyyyyyyyy
 
 I never want to hear you say (don't want to hear you say)
 
