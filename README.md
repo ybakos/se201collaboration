@@ -1,4 +1,4 @@
-Yeahhh Yeahhh Cowabungaaaaahhh (Yeah!) (Yeah!) 
+Yeahhh Yeahhh Cowabungaaaaahhh (Yeah!) (Yeah!)
 
 You are my fire
 
@@ -68,7 +68,7 @@ Cash rules everything around me, CREAM!
 
 You are! (you are?!, you are??, you are!!)?????!! 🤨
 
-Don't wanna hear you say, ✨✨ALPACA!✨✨"
+I DEFINITELY wanna hear you say, ✨✨ALPACA!✨✨"
 
 Ain't nothin' but a headache
 
@@ -80,7 +80,7 @@ I want it that way
 
 Tell me why
 
-Ain't nothin' but a toothache 
+Ain't nothin' but a toothache
 
 Tell me why tell me why tell me why tell me why
 
