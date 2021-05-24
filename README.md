@@ -34,7 +34,7 @@ Am I your fire?
 
 Your one desire
 
-Yes, I know it's too late
+Yes, I know it's your birthday
 
 Never gonna give you up!
 
