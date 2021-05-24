@@ -18,7 +18,7 @@ That I want it that way
 
 Tell me why
 
-Ain't nothin' but a heartache
+Are not no thing except for a pain in the coronary system
 
 Tell me tacos!
 
@@ -62,7 +62,7 @@ I want you to know
 
 That deep down inside of me
 
-You are my fire
+You are my fire <3
 
 Cash rules everything around me, CREAM!
 
@@ -82,7 +82,7 @@ Tell me why
 
 Ain't nothin' but a toothache 
 
-Tell me why
+Tell me why tell me why tell me why tell me why
 
 Ain't nothing but a doughnut
 
