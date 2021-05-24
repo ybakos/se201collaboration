@@ -66,7 +66,7 @@ You are my fire
 
 The one desire
 
-You are (you are, you are, you are)
+You are! (you are?!, you are??, you are!!)?????!! 🤨
 
 Don't wanna hear you say
 
