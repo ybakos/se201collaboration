@@ -2,7 +2,7 @@ Yeah
 
 You are my fire
 
-The one desire
+We like watching birds
 
 Believe when I say
 
@@ -20,7 +20,7 @@ Tell me why
 
 Ain't nothin' but a heartache
 
-Tell me why
+Tell me tacos!
 
 Ain't nothin' but a mistake
 
@@ -66,9 +66,9 @@ You are my fire
 
 Cash rules everything around me, CREAM!
 
-You are (you are, you are, you are)
+You are! (you are?!, you are??, you are!!)?????!! 🤨
 
-Don't wanna hear you say
+Don't wanna hear you say, "Donkeyyyyyyy!"
 
 Ain't nothin' but a heartache
 
@@ -80,11 +80,11 @@ I want it that way
 
 Tell me why
 
-Ain't nothin' but a heartache
+Ain't nothin' but a toothache 
 
 Tell me why
 
-Ain't nothing but a mistake
+Ain't nothing but a doughnut
 
 Tell me why
 
@@ -92,7 +92,7 @@ I never want to hear you say (never wanna hear you say)
 
 I want it that way
 
-Tell me why
+TELL ME WHYYYYYYYYYYYY
 
 Ain't nothin' but a heartache
 
@@ -100,7 +100,7 @@ Ain't nothin' but a mistake
 
 Tell me burritos!
 
-I never want to hear you say (don't want to hear you say)
+I never want to hear you say (never gonna give you up)
 
 I want it that way
 
