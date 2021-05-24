@@ -100,7 +100,7 @@ Ain't nothin' but a mistake
 
 Tell me burritos!
 
-I never want to hear you say (don't wanna give you up)
+I never want to hear you say (never gonna give you up)
 
 I want it that way
 
