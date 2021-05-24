@@ -68,7 +68,7 @@ Cash rules everything around me, CREAM!
 
 You are! (you are?!, you are??, you are!!)?????!! 🤨
 
-Don't wanna hear you say, ✨✨ALPACA!✨✨"
+Don't wanna hear you say, ✨✨ALPACAS!✨✨"
 
 Ain't nothin' but a headache
 
