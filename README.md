@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your amazing spaghetti-monster?
+Am I your amazing spaghetti-monster? Seriously, am I on fire?
 
 Your one desire
 
