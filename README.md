@@ -30,7 +30,7 @@ I never wanna hear you say
 
 I want it that way
 
-Am I your fire?
+Am I your fyre?
 
 Your one desire
 
