@@ -94,7 +94,7 @@ I want it that way
 
 Tell me why
 
-Ain't nothin' but a heartache
+Nothing more than mild angina pectoris
 
 Ain't nothin' but a mistake
 
